@@ -5,11 +5,11 @@
 GDG Ekipleri için çok heyecan verici bir etkinlik geride kaldı!!
 
 
-2 Aralık Tarihinde Gerçekleşen Etkinliğe 250+ katılım gösterildi. Birbirinden güzel sunumların yer aldığı etkinlikte tüm katılımcılar güzel zaman geçirip etkinlikten mutlu ayrıldılar!
+2 Aralık Tarihinde Gerçekleşen Etkinliğe 300+ katılım gösterildi. Birbirinden güzel sunumların yer aldığı etkinlikte tüm katılımcılar güzel zaman geçirip etkinlikten mutlu ayrıldılar!
 
 **Bu güzel günden Kayıtlar ve Fotoğraflar:**
 
-* 250+ katılımcı
+* 300+ katılımcı
 * Android ve Web alanında 2 salonda paralel sunumlar.
 * 14 sunum. Birçoğu teknik!
 * Etkinlik alanı ve fotoğrafları :
